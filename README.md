@@ -10,3 +10,6 @@ Meu nome é Laura Cosmo
 lauracosmo04@gmail.com
 
 @la_cosmo_
+
+
+![](https://media1.tenor.com/m/SpXWQo0Mq7EAAAAd/welcome-michael-scott.gif)
